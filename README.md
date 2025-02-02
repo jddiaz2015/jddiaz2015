@@ -1,6 +1,6 @@
 ## Hi there 👋
 
- My name is juan diaz, its my third year in college.
+ My name is Juan Diaz, it's my third year in college.
 
 
 
