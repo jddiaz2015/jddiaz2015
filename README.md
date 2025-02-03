@@ -9,9 +9,11 @@
 
 - ⚡ Fun fact: I like reading and movies.
 
+⚽ I used to play soccer, but I haven't play in a long time.
+
 - I want to learn as much as i can in my IDMX class. 
 
- -I enjoy the outdoors. 
+- I enjoy the outdoors. 
 
 
 
