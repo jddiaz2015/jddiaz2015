@@ -11,7 +11,7 @@
 
 ⚽ I used to play soccer, but I haven't play in a long time.
 
-- I want to learn as much as i can in my IDMX class. 
+- I want to learn as much as I can in my IDMX class. 
 
 - I enjoy the outdoors. 
 
