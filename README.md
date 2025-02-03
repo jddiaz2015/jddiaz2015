@@ -10,3 +10,11 @@
 - ⚡ Fun fact: I like reading and movies.
 
 - I want to learn as much as i can in my IDMX class. 
+
+ -I enjoy the outdoors. 
+
+
+
+![image](https://github.com/user-attachments/assets/d58001e5-3d1b-4ad2-93bb-37ad1ffa4e18)
+
+https://youtu.be/c9xtkAZSK50
